@@ -1,2 +1,0 @@
-# mokka mohan
-## kichidi
